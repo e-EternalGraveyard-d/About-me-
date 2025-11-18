@@ -20,7 +20,7 @@ We are currently undiagnosed, however we are planning on getting tested at the v
 
 As a collective; please use They/Grave/It pronouns for us as a whole.
 
-we are bodily a 15 year old in which our birthday is October 13th.
+Our birthday is October 13th.
 
 Current diagnosed conditions; ADHD, Anxiety, and Depression.
 
