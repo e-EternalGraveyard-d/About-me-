@@ -1,4 +1,4 @@
-Welcome to the Graveyard System page! Before interacting with us, it's best suggest to go over things on here, on our strawpage or on our Patreon. Let's go!
+Welcome to the Flytrap System page! Before interacting with us, it's best suggest to go over things on here, on our strawpage or on our Patreon. Let's go!
 
 
 <img width="1001" height="177" alt="1000002682" src="https://github.com/user-attachments/assets/e67e5539-ad40-4456-aa76-ee66e81b3416" />
