@@ -42,7 +42,7 @@ General DNI list;
 
 • Pro/Conshippers (We don't like either of you. We are talking about the proshippers who allow Conshipping, light proshippers are fine ig but absolutely kms at even typing this. ~Lovesick)
 
-• Endo systems  (Respectfully, we don't want to be interact with by yall? We kinda respect you, we don't really care what you do but just don't get us involved. We are really confused with whole stuff about y'all. ~Flit)
+• Endo systems  (Respectfully, we don't want to be interact with by yall? We don't really respect some of you, we don't really care what you do but just don't get us involved. We are really confused with whole stuff about y'all. ~Flit)
 
 • Public Age & Pet players (This especially makes me uncomfortable, please don't come up to us!! Please keep your sexual activities to yourself and your partner(s) or at LEAST your frined group if they are comfortable with such, idk!! >n< ~The Lamb)
 
