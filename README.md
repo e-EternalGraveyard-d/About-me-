@@ -4,15 +4,14 @@ Welcome to the Flytrap System page! Before interacting with us, it's best sugges
 <img width="1001" height="177" alt="1000002682" src="https://github.com/user-attachments/assets/e67e5539-ad40-4456-aa76-ee66e81b3416" />
 
 
-》 First of all, we are a suspected dissociative disorder having individual (simplified wording: We suspected we have a dissociative disorder)
-We are fine with giving out our status on getting diagnosed; which we are currently in testing.
-[To add here, we are traumagentic and because we are comfortable with this at least being known; we have 20+ in our system]
+》 First of all, we are a diagnosed DID system.
+[To add here because we are comfortable with this at least being known; we have 20+ in our system]
 
 》 "Can I ask who's fronting?" While this can be 'disrespectful' for some systems, we are comfortable with such depending on the way you ask. Please do ask in a respectful manner and you will most likely not get ignored.
 
 》 "What do I call you when talking about all the alters as a collective?" We don't really have a true name in mind but we have been allowing people to use the name 'Eternal' to address us as a collective.
 
-》 "What pronouns do I use for yall as a collective?" When it comes to as a collective, we prefer genderneutrul pronouns such as They/Them. However, our pronouns in general change depending on the alter fronting.
+》 "What pronouns do I use for yall as a collective?" When it comes to as a collective, we prefer genderneutrul pronouns such as They/Them. However, our pronouns in general fluidly change depending on the alter fronting.
 
 》 "What are you currently diagnosed with?" We are currently diagnosed with conditions; ADHD, anxiety and depression. Which we are getting treated for such, of course.
 
